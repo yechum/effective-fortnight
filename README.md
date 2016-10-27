@@ -1,1 +1,1 @@
-# effective-fortnight
+Scouting
